@@ -13,8 +13,7 @@ El trabajo fue realizado de forma efectiva y colaborativa, donde aprendimos cier
 
 #### **Trayectoria por el modelo**🔭
 
-[![SC2 Video](https://img.youtube.com/vi/aD8o0E7l2nI/0.jpg)](https://https://www.youtube.com/watch?v=aD8o0E7l2nI)
-
+[![SC2 Video](https://img.youtube.com/vi/aD8o0E7l2nI/0.jpg)](http://www.youtube.com/watch?v=aD8o0E7l2nI)
 #### **VR** 📲 
-[![SC2 Video](https://img.youtube.com/vi/-cQpTbRBOt0/0.jpg)](https://https://www.youtube.com/watch?v=-cQpTbRBOt0)
+[![SC2 Video](https://img.youtube.com/vi/-cQpTbRBOt0/0.jpg)](http://www.youtube.com/watch?v=-cQpTbRBOt0)
 
